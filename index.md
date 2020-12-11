@@ -106,3 +106,5 @@ The TE Administration can obtain a statement to support the authorities' prepara
 
 ## Conclusion 
 Contact TE office in the English section, they will be able to help you out with more details. For a non-EEA entrepreneur in Finland, that is the best course of action.  Also, the above text is a google translated version from the original finnish and swedish versions and should be verified for obvious reasons. 😊
+
+
