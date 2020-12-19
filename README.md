@@ -1,3 +1,2 @@
-# Entrepreneurship guidelines for a solopreneur
-How to startup in Finland
+# Entrepreneurship guidelines from TE Office
 https://gayathry2612.github.io/TE-Office-guide
